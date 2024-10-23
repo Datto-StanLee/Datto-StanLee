@@ -1,1 +1,8 @@
-product manager working for datto with a VICIOUS allergy to the shift key
+"the snack food of product managers"
+- corbin brunswick
+
+"an envelope for all the world's chewings"
+- philip brien philipsen
+
+"a man holding a carpet"
+- silvèstre uighne
